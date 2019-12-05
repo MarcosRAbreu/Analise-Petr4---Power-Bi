@@ -1,0 +1,1 @@
+Analise da variação da Petr4 - Valores históricos 2001 a 2019
